@@ -2,7 +2,7 @@
 
 ## eHealthHacks 2-21
 
-Link to the demo : https://youtu.be/1dRGT1ogyF0
+Link to the demo : https://www.youtube.com/watch?v=g72zqgFetyE
 
 ## AIM
 
